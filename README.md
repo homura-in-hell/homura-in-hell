@@ -7,7 +7,7 @@
 very mentally ill genderless animal girl thing ✦ lesbian ✦ pro-kink/pro-fiction ✦ pro-identify as whatever you want
 
 i really like madoka, pokemon (the critters), and my big sis rat. she's really cool and hot
-<br> i also like touhou, rain world, voice synth (miku, teto, etc), 2000-2010s internet stuff, anime girls, furries...</br>
+<br> i also like touhou, rain world, saya no uta, voice synth (miku, teto, etc), 2000-2010s internet stuff, anime girls, furries...</br>
 
 we can talk about life or anything you want. don't be afraid to "traumadump" me or whatever
 
