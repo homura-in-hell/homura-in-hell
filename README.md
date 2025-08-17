@@ -9,10 +9,8 @@ very mentally ill genderless animal girl thing ✦ lesbian ✦ pro-kink/pro-fict
 i really like madoka, pokemon the critters, and my big sis (found incest). she's really cool and hot :3
 <br> i also like mlp, nier, touhou, rain world, saya no uta, voice synth (miku, teto, etc), 2000-2010s internet stuff, anime girls, furries...</br>
 
-we can talk about life or anything you want. don't be afraid to "traumadump" me!!!
+we can talk about life or anything you want. don't be afraid to "traumadump" me!!! we can also talk kinks idm, though i don't really do roleplay
 
-please don't be afraid to talk abt kinks to me, i'm pro-kink as fuck and have a collection of messed up fetishes myself. very few things make me uncomfortable but we can always tell eachother to change the subject
+it's fine if you copy my skins (i'd be flattered ///) most of them can be found in a folder in the repo of my profile
 
-idm if you copy my skins (i'd be flattered ///) most of them can be found in a folder in the repo of my profile
-
-i'm too lazy to code this atm </3
+i'm too lazy to code this so yeah
