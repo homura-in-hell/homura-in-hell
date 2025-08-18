@@ -6,7 +6,7 @@
 
 very mentally ill genderless animal girl thing ✦ lesbian ✦ pro-kink/pro-fiction ✦ fuck bioessentialism
 
-i really like madoka, pokemon the critters, and my big sis (found incest). she's really cool and hot :3
+i really like madoka, pokemon the critters, and my siblings (found incest)
 <br> i also like mlp, nier, touhou, rain world, saya no uta, voice synth (miku, teto, etc), 2000-2010s internet stuff, anime girls, furries...</br>
 
 we can talk about life or anything you want. don't be afraid to "traumadump" me!!! we can also talk kinks idm, though i don't really do roleplay
@@ -14,3 +14,11 @@ we can talk about life or anything you want. don't be afraid to "traumadump" me!
 it's fine if you copy my skins (i'd be flattered ///) most of them can be found in a folder in the repo of my profile
 
 i'm too lazy to code this so yeah
+
+<p align="center">
+  <img height="300" src="https://adriansblinkiecollection.neocities.org/stamps/a25.png"/>
+  <img height="300" src="https://adriansblinkiecollection.neocities.org/stamps/a1.gif"/>
+  <img height="300" src="https://adriansblinkiecollection.neocities.org/stamps/g12.gif"/>
+
+
+  
