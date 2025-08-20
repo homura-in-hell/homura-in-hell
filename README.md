@@ -7,7 +7,7 @@
 very mentally ill genderless animal girl thing ✦ lesbian ✦ pro-kink/pro-fiction ✦ fuck bioessentialism
 
 i really like madoka, pokemon the critters, and my siblings (found incest)
-<br> i also like mlp, nier, touhou, rain world, saya no uta, voice synth (miku, teto, etc), 2000-2010s internet stuff, anime girls, furries...</br>
+<br> i also like mlp, made in abyss, nier, touhou, rain world, saya no uta, voice synth (miku, teto, etc), 2000-2010s internet stuff, furries...</br>
 
 we can talk about life or anything you want. don't be afraid to "traumadump" me!!! we can also talk kinks idm, though i don't really do roleplay
 
